@@ -1,3 +1,3 @@
 # ComputerNetwork
 
-Hi. I'm Geunil Yuk.
+201402381 
